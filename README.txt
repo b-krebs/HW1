@@ -1,3 +1,0 @@
-Bailey Krebs
-
-Chicago Cubs
